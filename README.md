@@ -1,6 +1,6 @@
 Bienvenue à **Ecole NDDN GR63**!👋 
 **C'est très important que tu lis tout ça.**
-lis les regles dans #régles-info ℹ️ , pour ecrire cest dans #géneral 📝 , #homes cest pour les devoirs que le prof envoi 📔 , #devoirs cest pour la discution des devoirs,📒  #musique  pour ecouter la musique🎵 , #spam pour spammer, #hacks-devoirs  pour avoir des hacks pour les devoirs.😎👍 
+lis les regles dans #régles-info ℹ️ , pour ecrire cest dans #géneral 📝 , #homes cest pour les devoirs que le prof envoi 📔 , #devoirs cest pour la discution des devoirs,📒  #musique  pour ecouter la musique🎵 , #spam pour spammer, 🔴#hacks-devoirs  pour avoir des hacks pour les devoirs.😎👍 
 **Chainnes Vocaux:**
 relax est pour relaxer: (jouer, sinon rien faire), 🎮 lecture est pour lire des livres📕 , devoirs est pour faire les devoirs ensemble, afk sert a rien🤷‍♂️ , **❗ferme le MUSIC-BOT section**, cest pour rentrer et ecouter de la musique avec un robot qui peut le faire: @MEE6#4876 
 
@@ -41,7 +41,7 @@ tu peux demander dans #general, sinon, tu peux ecrire à Ark0dsk0#2177 <-- C'est
 va sur youtube.com, il y a des videos qui montrent comment utiliser Discord.
 Si tu as des questions, ecrie les à moi: Ark0dsk0#2177 (Alexander)
 
-
+🔴 acces aux hacks-devoirs ont seulement les gars.
 tu veux parler avec autre classes?, nous avons un serveur pour ça!:
 ** https://discord.gg/xMMHMeG2wX **
 Invite toute les personnes de notre classe, **car notre but est de avoir 20 personnes dans notre groupe vers la fin de l'année!**
